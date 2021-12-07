@@ -1,1 +1,1 @@
-[Instagram](instagram.com/seanonyms)
+[GitHub](http://github.com)
