@@ -1,1 +1,1 @@
-![Image of Dwight Schrute](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.looper.com%2Fimg%2Fgallery%2Fthe-untold-truth-of-dwight-schrute%2Fintro-1562620300.jpg&imgrefurl=https%3A%2F%2Fwww.looper.com%2F157775%2Fthe-untold-truth-of-dwight-schrute%2F&tbnid=iPIC9EaLQ4eOCM&vet=12ahUKEwiR0KyNttH0AhV6_TgGHcBPAVwQMygDegUIARDVAQ..i&docid=Gz22wZUAP9cGKM&w=780&h=438&itg=1&q=dwight%20schrute&ved=2ahUKEwiR0KyNttH0AhV6_TgGHcBPAVwQMygDegUIARDVAQ)
+![Image of Dwight Schrute](https://www.looper.com/img/gallery/the-untold-truth-of-dwight-schrute/intro-1562620300.jpg)
